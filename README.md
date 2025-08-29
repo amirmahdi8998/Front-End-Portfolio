@@ -57,9 +57,9 @@ Motion expresses personality and creativity
 
 🤝 Connect With Me
 
-LinkedIn : [(https://www.linkedin.com/in/amirmahdi-ghaffari-683634381/)]
+LinkedIn : https://www.linkedin.com/in/amirmahdi-ghaffari-683634381
 
-Email : [AmirMahdi.Ghaffari89@gmail.com]
+Email : AmirMahdi.Ghaffari89@gmail.com
 
 ✨ Future Plans
 
